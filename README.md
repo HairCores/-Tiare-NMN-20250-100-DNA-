@@ -1,4 +1,4 @@
-# 日本製 Tiare NMN 20250 高純度100％ 補充劑 (抗衰老 細胞逆轉 細胞再生 修復DNA) [香港代購](https://haircores.com/）+
+# 日本製 Tiare NMN 20250 高純度100％ 補充劑 (抗衰老 細胞逆轉 細胞再生 修復DNA) [香港代購](https://haircores.com/)
 
 網站：https://haircores.com/
 
